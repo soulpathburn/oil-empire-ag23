@@ -1,4 +1,4 @@
-#  
+#  best Script for oil empire is the best oil empire Script, featuring no clip and auto-heal. Safe and powerful for all your needs.
 
 
 
